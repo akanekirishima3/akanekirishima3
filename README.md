@@ -16,6 +16,8 @@
 
 ~~~
 
+![tq03TS0r](https://user-images.githubusercontent.com/89263412/130250916-323a17db-fc65-4504-8830-8d5ddbeb93da.jpg)
+
 
 - 👋 Hi, I’m @akanekirishima3
 - 👀 I’m interested in ...
